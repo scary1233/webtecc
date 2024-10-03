@@ -1,1 +1,1 @@
-https://scary1233.github.io/webtecc/index.html
+https://scary1233.github.io/webtecc/index.html.html
